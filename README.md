@@ -31,7 +31,7 @@
 ## 📲 Connect with Me
 
 - 📧 Email: [jigarsiddhpura131@gmail.com](mailto:youremail@example.com)
-- 📷 Instagram: [@_jigar999_](https://instagram.com/yourusername)
+- 📷 Instagram: [@_jigar999_](https://instagram.com/@_jigar999_)
 - 👍 Facebook: [@Jigar Siddhpura](https://facebook.com/yourusername)
 - 👻 Snapchat: [@jigar_siddhpura](https://www.snapchat.com/add/yourusername)
 
