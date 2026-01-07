@@ -6,7 +6,7 @@
 
 ## 🔥 About Me
 
-- 🔭 Currently working on **Full Stack Web & Application Development**
+- 🔭 Currently working on **Data Science & Application Development**
 - 🌱 Continuously learning **new technologies**
 - 👯 Looking to **collaborate on real-world projects**
 - 🧠 Passionate about building **useful digital tools**
