@@ -31,6 +31,7 @@
 
 ## 📲 Connect with Me
 
+- 📱 Mobile: **9173049510**
 - 📧 Email: [jigarsiddhpura131@gmail.com](mailto:youremail@example.com)
 - 📷 Instagram: [@_jigar999_](https://instagram.com/@_jigar999_)
 - 👍 Facebook: [@Jigar Siddhpura](https://facebook.com/yourusername)
